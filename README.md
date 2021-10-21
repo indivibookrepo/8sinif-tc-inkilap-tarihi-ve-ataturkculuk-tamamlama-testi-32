@@ -1,0 +1,1 @@
+# 8sinif-tc-inkilap-tarihi-ve-ataturkculuk-tamamlama-testi-32
